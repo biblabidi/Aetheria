@@ -6,6 +6,7 @@ Nothing here yet, but by downloading now, you can be the start of something grea
 Developers:
 
 Lead everything: TyBoy158 https://www.youtube.com/@tyboy158
+
 Beta testing, ideas, and emotional support: Dumb Blob https://www.youtube.com/@insertfunnythinghere
 
 
